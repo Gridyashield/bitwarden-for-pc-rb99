@@ -1,4 +1,4 @@
-# 
+# smart Bitwarden for PC | Bitwarden for Windows Integration | password-generator + custom-fields is the best Bitwarden for PC | Bitwarden for Windows integration, featuring
 
 
 
